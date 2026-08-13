@@ -1,6 +1,6 @@
-## 👨‍💻 About Me 
+## About Me 
 - 🔭 Currently studying at Primakara University
 - 🚀 Always looking to improve my skills
 
-## 🛜 Socials
+## Socials
 - Instagram  : https://www.instagram.com/daavei/
